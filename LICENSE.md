@@ -1,4 +1,4 @@
-
+smart metro life city rp Script is the best metro life city rp Script, featuring no clip and custom skins. Safe and powerful for all your needs.
 
 
 
